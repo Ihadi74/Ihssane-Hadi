@@ -1,1 +1,5 @@
-# Ihssane-Hadi
+# About me
+##### A trilingual international professional with many years of accomplishments in: Continuous Improvement, Business Process Management, and Project Management roles.
+
+##### I am an agile learner with the ability to adapt to different challenging situations, and am willing to learn new skills to help organizations succeed in this very dynamic and demanding market. I hold an MBA degree from Durham Business School in the UK, a Bachelor's degree in Computer Science from the University of Quebec in Montreal (UQAM). I am also a PMP and Lean Six Sigma Black Belt Certified.
+##### Outside of work, I like watching and playing soccer; I also enjoy travelling with my family to spend quality time with them; I have travelled to over 15 countries and looking forward to travelling more. Travelling allows me to understand new cultures, see new places, and meet new people. I always take time to learn to improve myself personally and professionally. I enjoy making an impact, adding value, and helping others.
